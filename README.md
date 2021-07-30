@@ -1,4 +1,4 @@
 # Nhập môn Game
 Giáo viên hướng dẫn: Đinh Nguyễn Anh Dũng
 
-Sinh viên: Huỳnh Long Pháp: 18521226
+Sinh viên: Pham Thien Long 18521052
